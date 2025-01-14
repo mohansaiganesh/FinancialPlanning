@@ -1,0 +1,1 @@
+This folder contains multiple folders on how to spend money wisely.
